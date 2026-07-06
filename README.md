@@ -101,4 +101,4 @@ Amitabho Sengupta.
 
 *Alor Uttaradhikar – A Legacy of Lights.*
 
-2026.
+Last updated: 06 July 2026
